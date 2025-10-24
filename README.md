@@ -1,2 +1,0 @@
-# minu-esimene-projekt  
-Tere
